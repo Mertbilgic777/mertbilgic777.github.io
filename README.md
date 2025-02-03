@@ -1,1 +1,0 @@
-# mertbilgic777.github.io
